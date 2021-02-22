@@ -1,0 +1,2 @@
+# Cryptocoin-Donations
+DPgPamJEz3RFoQXZGn5swinC7UDSp7Lhjk Accepting donations
